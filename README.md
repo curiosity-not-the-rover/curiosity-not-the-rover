@@ -4,8 +4,6 @@ i’m interested in breaking stuff.
 
 i write a lot of code, but almost none of it gets to exist on the internet because it's really bad.
 
-i just finished my final exam for year 12!
-
 i’m really inconsistent with my activity so collaboration is difficult. if you're interested, though, go ahead and ask lol.
 
 <!---
